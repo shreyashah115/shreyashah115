@@ -5,4 +5,4 @@ I have mostly been a backend engineer. I believe I have meticulous attention to 
 
 Apart from coding, I also like gaming, listening to audiobooks, and cooking (a newly discovered hobby).
 
-More details about me: https://shreyanow.space
+More details about me: shreyanow.space
