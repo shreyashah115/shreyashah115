@@ -4,6 +4,7 @@ I like finding solutions to problems; I am always curious about new and existing
 
 Apart from coding, I also like gaming 🎮, watching anime 🦊, ~~listening to audiobooks~~ reading books is better 📚, sketching 📝, journaling ✍🏽, sharing my opinions on social media which nobody really cares about ✌🏽.
 
+My pronouns are She/Her.
 
 <!-- - Email: [shreyashah115@gmail.com](mailto:shreyashah115@gmail.com)
 - LinkedIn: [in/shreya115](https://www.linkedin.com/in/shreya115/) -->
